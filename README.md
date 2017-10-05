@@ -1,14 +1,6 @@
 
-# hello there, Newton
-
-
-
-
-
-
-
-
-
+# Hello there, Newton. 
+Just wanted to let you know that you're the best, GOAT.
 
 
 
